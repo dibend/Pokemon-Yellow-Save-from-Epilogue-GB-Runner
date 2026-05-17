@@ -1,5 +1,9 @@
 # Pokemon-Yellow-Save-from-Epilogue-GB-Runner
-Mew, Mewtwo, Dragonite, Ditto, Articuno, Zapdos & Rhydon in Partym Pokedex, traded with Gold all Legit No Level 100s traded them all to complete back of PokeDex. Pikachu Released for fun.
+Mewtwo, Dragonite, Ditto, Articuno, Zapdos & Rhydon in Party, traded with Gold all Legit No Level 100s traded them all to complete back of PokeDex. Pikachu Released for fun.
+
+Used Mew Glitch (Easter Egg) (Taught Mew Egg Bomb) (Dev Snuck In Game cause it was in Movie) (Don't catch Missingo it messes up Game). (Pokedex goes up to 151) (Mew in Computer).
+
+Good for training Mew.
 
 Can fly to Elite 4 by keep pressing up on Articuno or Zapdos Fly
 
@@ -26,5 +30,11 @@ Epilogue technically has Emulators but you can make it require cartridges so its
 You can technically back up your Yellow Version with it but don't share ROM.
 
 Play this save on Anduril ModRetro with Legit Pokemon Yellow.
+
+Amazon sells old Gameboy colors works on original Gameboy too.
+
+May have been played on Gameboy original by original owner I think I played on GBA SP actually GBA works too.
+
+Best Save Ever for beating Elite 4.
 
 
