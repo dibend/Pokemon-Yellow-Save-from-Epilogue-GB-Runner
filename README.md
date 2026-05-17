@@ -35,6 +35,8 @@ Amazon sells old Gameboy colors works on original Gameboy too.
 
 May have been played on Gameboy original by original owner I think I played on GBA SP actually GBA works too.
 
+(May need to Rename File to Make Work on some Computers) .sav file might get cut off by trash OS.
+
 Best Save Ever for beating Elite 4.
 
 
